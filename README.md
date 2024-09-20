@@ -1,0 +1,4 @@
+-olá, meu nome é Kauê Pelais 
+-Gosto muito de jogar bola e tbm gosto de jogar video game!
+-Tenho interesse de trabalhar consertando computador/Pc 
+-minhas comidas favoritas são Strogonoff, sushi, x-bancon e pizza
